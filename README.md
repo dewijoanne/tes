@@ -1,1 +1,2 @@
-# tes
+Nama: Joanne
+Kelompok: 13
